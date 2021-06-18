@@ -1,1 +1,2 @@
 # trialone
+Economic growth and changing consumption and production patterns are resulting into rapid increase in waste all over globe. This materials consume more than 400 years to get decomposed. Due to lack of integrated waste management there are negative impacts on environment and public health. Current power generating plants produce a lot air pollution which is highly dangerous for Living Organisms. Hence there is extreme need to reduce this waste pollution.
